@@ -18,11 +18,13 @@ ${\textsf{\color{#a67c52}Alters~}}$
 
 Hunter / Kerian ; Host , He / Bir / Flap / Flaps / Flapjack
 
-${\textsf{\color{#a67c52}Elio ; They / Shi / fo / ox / Foxglove}}$
+Grian / Dove ; He / Wing / Sym / Angel / Feather / Craft / Virtual / Cloud / Lime / Sweet / Death [ Most active ]
 
-Soren / Thorne ; They / It / Name
+${\textsf{\color{#a67c52}Elio ; FP obsessiveness holder , They / Shi / fo / ox / Foxglove}}$
 
-${\textsf{\color{#17171}Axel / Space ; He / They / Harmful / Spook}}$
+Soren / Thorne ; Persecutor , They / It / Name
+
+${\textsf{\color{#17171}Axel / Space ; Protecter , He / They / Harmful / Spook}}$
 
 <img src="https://64.media.tumblr.com/5837414c0754cedb213f66e472713940/e9b7480cfa2807bd-39/s2048x3072/127cf51ffde588c40fda602837507d082ba60f1e.pnj" height="40" width="240"/>
 
